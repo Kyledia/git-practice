@@ -5,3 +5,4 @@ fomation of toukendanshi
 leonhurt is very cute and cool
 he's very very cutemogu mogu leon
 mofumofu mofunn leon mofu
+lenlen
